@@ -5,6 +5,5 @@
 
 <br>
 
-## Interest 👀
+## Interest 🙂
 - Study software
-- listning K-POP
